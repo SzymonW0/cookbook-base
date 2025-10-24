@@ -1,0 +1,20 @@
+# Anti-Sleep
+
+## Ingredients
+
+1. 1 Can of selected energy drink.
+2. 0-5 teaspoons of sugar.
+3. 5-10 teaspoons of coffe.
+4. (optional) any selected flavor enhancers.
+5. (optional) ice cubes.
+6. !MANDATORY! crushed sour candy.
+
+## Preparation
+
+1. Put sugar, coffe and non-liquid flavor enhancers into a cup.
+2. Mix the ingredient in the cup.
+3. Pour energy drink into the cup while stirring to dissolve the powders.
+4. Add liquid flavor enhancers and continue stirring.
+5. Add crushed sour candy and stir.
+6. (optional) add ice cubes.
+7. (optional) enjoy.
