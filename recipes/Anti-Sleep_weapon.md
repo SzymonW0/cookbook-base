@@ -4,7 +4,7 @@
 
 1. 1 Can of selected energy drink.
 2. 0-5 teaspoons of sugar.
-3. 0-5 teaspoons of coffe.
+3. 5-10 teaspoons of coffe.
 4. (optional) any selected flavor enhancers.
 5. (optional) ice cubes.
 
